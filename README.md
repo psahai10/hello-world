@@ -3,4 +3,4 @@ My first one
 
 Hello Earthlings!
 
-I am an Alien from outside earth and WTF is going on earth?
+I am an Alien. Coffee and beer are the best thing so far on your planet!
